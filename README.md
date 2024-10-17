@@ -1,0 +1,31 @@
+Please contact this client on my skype.
+skypeid: live:.cid.635dd97d82680932
+
+And please write this message to him.
+
+-----------------------------------------------------------------------------------------------------------------
+I am BingFeng's friend on skype.
+His skype is restrectried and upwork account(roshankumar219124@gmail.com) is restricted by comversation.
+So, he is waiting for you on new upwork account.
+His new upwork profile is as follow.
+https://www.upwork.com/freelancers/~01b41b0da6cf8710ea
+Please invite this account on upwork.
+He is waiting for you on upwork.
+-----------------------------------------------------------------------------------------------------------------
+
+
+skype:  trader123@protonmail.com
+	live:trader123_9
+
+I am YuanRi's friend on skype.
+He sent new issue on git of Tplatform.
+His skype is restrectried and upwork account is restricted by comversation.
+Lets chat on git issue(#54, #55):
+https://github.com/devmaestro1/TPlatform/issues/55
+
+Or------
+You can chat with him on new upwork account.
+His new upwork profile is as follow.
+https://www.upwork.com/freelancers/~01b41b0da6cf8710ea
+Please invite this account on upwork.
+He is waiting for you on upwork.
